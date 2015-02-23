@@ -1,2 +1,2 @@
 # Charlie92.github.io
-souel, South Kore
+Souel, South Kore
